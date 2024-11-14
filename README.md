@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Abdoulyassar
+- 👋 Hi, I’m @Abdoul
 - 👀 I’m interested in Blockchain Technology, Web Development, DeFi and Web3Content Writing
 - 🌱 I’m currently learning ABout Web Development 
 - 💞️ I’m looking to collaborate on New Development
-- 📫 How to reach me Via X/Twitter @Abdoulyassar01
+- 📫 How to reach me Via X/Twitter @Abdoulxyz
 - 😄 Pronouns: Him
 - ⚡ Fun fact: LMAO 😎😎😎
 
