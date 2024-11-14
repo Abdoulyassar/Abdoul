@@ -7,6 +7,6 @@
 - ⚡ Fun fact: LMAO 😎😎😎
 
 <!---
-Abdoulyassar/Abdoulyassar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Abdoul/Abdoul is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
