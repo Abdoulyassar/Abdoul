@@ -2,7 +2,7 @@
 - 👀 I’m interested in Blockchain Technology, Web Development, DeFi and Web3Content Writing
 - 🌱 I’m currently learning ABout Web Development 
 - 💞️ I’m looking to collaborate on New Development
-- 📫 How to reach me Via X/Twitter @@72YSL
+- 📫 How to reach me Via X/Twitter @72YSL
 - 😄 Pronouns: Him
 - ⚡ Fun fact: LMAO 😎😎😎
 
